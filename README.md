@@ -1,1 +1,1 @@
-# Leadership-as-staff-responsible---H-M
+# Leadership-as-staff-responsible
